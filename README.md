@@ -1,1 +1,1 @@
-### Hey!🌊 I'm Khoa. Check out my [portfolio](madebykhoa.com)
+### Hey!🌊 I'm Khoa. Check out my [portfolio](https://madebykhoa.com)
